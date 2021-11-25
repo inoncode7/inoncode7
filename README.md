@@ -1,5 +1,5 @@
 - 👋 Hi, I’m inon
-- 🕹 I loves game a lot
+- 🕹 I loves to game a lot
 - 🌱 I’m currently learning c# and python
 - 😑 I not doing anything never 
 - 📫 you can reach me in discord right now 
